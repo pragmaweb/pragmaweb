@@ -1,1 +1,1 @@
-Red Dead Redemption 2, Witcher, Black Myth: Wykong
+Red Dead Redemption 2, Witcher, Black Myth: Wukong
